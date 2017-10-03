@@ -1,2 +1,2 @@
 # Flexible-Panels
-<center><img src="http://g.recordit.co/7JcNBCbvTw.gif" height="300" width="400"></center>
+<center><img src="http://g.recordit.co/ro5oMvf3dJ.gif"></center>
